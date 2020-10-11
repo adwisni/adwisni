@@ -1,1 +1,1 @@
-ok now this is what i call epic
+hegarty calculator is pretty good
