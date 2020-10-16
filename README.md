@@ -1,1 +1,1 @@
-hegarty calculator is pretty good
+nice
